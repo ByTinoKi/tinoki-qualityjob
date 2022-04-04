@@ -1,7 +1,7 @@
 Quality job By TinoKi
 
 No job needed!
-Minijob to earn some quik cash.
+Mini job to earn some quik cash.
 
 Preview -> https://youtu.be/4qXEeDrJ9Cc
 
